@@ -1,2 +1,1 @@
-# Unblocked-Games
-A collection of free HTML5 unblocked games – perfect for school, Chromebooks, or restricted networks. Play offline-ready browser games instantly! No downloads needed. 🎮
+Hello! this is a message from chirly, Hello! this resp allows you to download unblocked HTML files. so you can play in school, and other networks that blocked games. you are welcome!
